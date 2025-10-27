@@ -1,7 +1,7 @@
 Wan 2.5 Features - Revolutionary AI Video Generation with Audio
 ---------------------------------------------------------------
 
-[Wan 2.5](https://wan25.top) AI - All in One Wan AI Video Generator with Audio
+[Wan 2.5](https://vidthis.ai/features/wan2-5) AI - All in One Wan AI Video Generator with Audio
 
 Professional wan 2.5 video generator with revolutionary wan 2.5 audio synchronization technology. Create stunning videos using wan 2.5 ai with perfect audio-visual harmony and advanced wan ai capabilities.
 
